@@ -1,0 +1,1 @@
+# ifritik.github.io
